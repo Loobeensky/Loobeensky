@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Alex!
+- 👀 I’m interested in gaming, translating, crafts, books and skating.
+- 🌱 I’m currently learning Affinity Designer and how to cut wood better. I'm not a programmer, sadly, not even close to one.
+- 💞️ I’m looking to collaborate on: you really don't want to collaborate with me on GitHub, I swear. My input would be tea and a good word.
